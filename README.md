@@ -1,7 +1,7 @@
 - 👋 oiieeeeeee meu amores ,bem vidos ou meu mundo virtual 😄🥳
 - meu nome é Ana carlinha do grau 🏍️
-- estou estudando no alura 😁
-- estou me desenvolvendo na linguagem javascript
+- estou estudando no alura obrigadatoriamente 😁
+- estou me desenvolvendo na linguagem javascript forçada 🤗
 - utilizo esse espaço para passar raiva 😡
 
 
